@@ -7,3 +7,5 @@ Saya berharap akan dapat tingkatkan ilmu pengetahuan tentang AI.
 hi izzat , cg sara here . thanks for add me 
 
 hi
+
+ne
